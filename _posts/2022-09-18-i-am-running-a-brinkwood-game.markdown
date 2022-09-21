@@ -14,7 +14,6 @@ They never struck me as monsters to be feared and dealt with lethal impunity. No
 
 However, now I've got to come up with how vampires are scary and evil.
 
-
 ## The Beginning
 Now the beginning.
 
@@ -26,16 +25,20 @@ Gerda Silversteel.
 
 The character chased her desires with abandon. She would say, or do, anything to get what she wanted. However, she was informed by her own pragmatic thinking. She was awesome to play, and apparently awesome to behold.
 
-So I've set a high standard for myself by accident. Not that anyone would say there was a standard to meet. But when given positive feedback about an artform you truely care about, you really fucking wanna make the magic happen again.
+So I've set a high standard for myself by accident. Not that anyone would say there was a standard to meet. But when given positive feedback about an artform you truly care about, you really fucking wanna make the magic happen again.
 
-I volunteered to run Brinkwood, a Tabletop Role-playing Game (TTRPG) based on Forged in the Dark system. The core of the game is the players (the three other people in my group) would play as a band of rebels looking to create revolution against the ruling class: Vampires. The way the vampires become that is through an alchemical solution called Blood Sterling, then followed by continious feeding on humans. The vampires are the actual and metaphorical leeches on the less fortunate.
+I volunteered to run Brinkwood, a Tabletop Role-playing Game (TTRPG) based on Forged in the Dark system. The core of the game is the players (the three other people in my group) would play as a band of rebels looking to create revolution against the ruling class: Vampires. The way the vampires become that is through an alchemical solution called Blood Sterling, then followed by continuous feeding on humans. The vampires are the actual and metaphorical leeches on the less fortunate.
 
-They vampires also sell the lie that if you work hard, you will make it. In reality, it's almost impossible to become one of the vampiric elite. It's a pyramid scheme in blood, strenght, and corruption.
+They vampires also sell the lie that if you work hard, you will make it. In reality, it's almost impossible to become one of the vampiric elite. It's a pyramid scheme in blood, strength, and corruption.
 
-Now, remember the examples of vampires I have to draw upon? They aren't exactly vibing with what this world is.
+Now, remember the examples of vampires I can draw upon? They aren't exactly vibing with what this world is.
 
-But maybe looking elsewhere isn't the solution. 
-
+But maybe looking elsewhere isn't the solution...
 
 ## The End
-Gerda was a manfiestation of putting soul to metaphorical page.
+Gerda was a manifestation of putting soul to metaphorical page, shaped by the people around her and her environment. I just need to do that at scale. Big oof. 
+
+Honestly, I should spend time writing down character ideas. I'll go do that now.
+
+Love,
+OnlyFeatures
