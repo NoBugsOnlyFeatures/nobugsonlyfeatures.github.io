@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-My name is Soren Ludwig. I am also known as NoBugsOnlyFeatures, or OnlyFeatures.
+My name is Soren. I am also known as NoBugsOnlyFeatures, or OnlyFeatures.
 
 I'm a software engineer by day, and a lot more by night. I have a lot of hobbies, friends, and family that enrich my life.
 
