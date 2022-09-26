@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "I am running a Brinkwood game"
+title: "I don't know how to role-play vampires"
 categories: storytelling roleplaying-games
 ---
 ## The Middle
