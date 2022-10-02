@@ -6,7 +6,7 @@ categories: storytelling roleplaying-games
 ## The Middle
 Lets start in the middle, then move to the beginning.
 
-Vampires really don't do it for me. They are Spike and Angle from Buffy the Vampire Slayer. They are Shinobu Oshino from Bakemonogatari. They are Count Chocula. And a second hand experience of Dracula.
+Vampires really don't do it for me. They are Spike and Angel from Buffy the Vampire Slayer. They are Shinobu Oshino from Bakemonogatari. They are Count Chocula. And a second hand experience of Dracula.
 
 Oh, and the Count for Sesame Street.
 
