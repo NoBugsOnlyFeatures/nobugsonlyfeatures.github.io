@@ -26,12 +26,12 @@ Skills:
 Rituals:
 - Blood Gaze
 
-Midnight Court wants to arrest another player
+Midnight Court wants to arrest Molly
 
-Olga Fisher (Travis)
+Olga Fisher 
 Mercy Blackchapel (Me)
-Molly Roux (Kona)
-Vallaley (Siobhan)
+Molly Roux 
+Vallaley 
 
 Doom:
 6
