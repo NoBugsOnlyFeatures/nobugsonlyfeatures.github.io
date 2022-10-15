@@ -1,4 +1,10 @@
-# Blood Hiest
+---
+layout: default
+title: "Blood Hiest GPNW (Oct 2022)"
+categories: storytelling roleplaying-games character-sheet
+---
+
+# Blood Hiest GPNW Oct, 2022
 
 Name: Mercy Blackchapel
 Face: Beguiling
