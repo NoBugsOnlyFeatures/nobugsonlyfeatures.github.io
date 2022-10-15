@@ -43,4 +43,4 @@ You'll play my VN to find out if you care anyways so. *shrug*
 Anyroad, I think I've accomplished what I needed to here. Thanks for reading!
 
 Love,
-OnlyFeatuers
+OnlyFeatures
