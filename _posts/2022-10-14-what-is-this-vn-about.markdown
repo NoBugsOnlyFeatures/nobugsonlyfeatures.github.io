@@ -6,7 +6,7 @@ categories: storytelling visual-novels
 
 # What is the plot of my visual novel?
 
-Why am I asking you? Because you are going to be my (Rubber Duck)[https://en.wikipedia.org/wiki/Rubber_duck_debugging]. I don't expect you to respond, only to listen. In listening to my talking, I can make intellectual progress.
+Why am I asking you? Because you are going to be my [Rubber Duck](https://en.wikipedia.org/wiki/Rubber_duck_debugging). I don't expect you to respond, only to listen. In listening to my talking, I can make intellectual progress.
 
 I rank listening as among the most valuable skills one can hone. (As I continue to "talk". The irony.)
 
