@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "Brinkwood Prompts"
+title: "Brinkwood Prompts 2022/"
 categories: storytelling roleplaying-games brinkwood thursday=night-game
 ---
 
