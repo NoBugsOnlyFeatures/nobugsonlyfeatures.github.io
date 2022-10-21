@@ -14,7 +14,10 @@ I must say, how you dealt with with the Master of Ceremonies' spreadsheets and e
 
 I digress.
 
-I have a business proposition for you. As I mentioned in a previous missive, I like money and probably not for the reasons you think. I also happen to have an impressive supply 
+I have a business proposition for you. As I mentioned in a previous missive, I like money and probably not for the reasons you think. I also happen to have an impressive supply of weed in my inventory, and the use of a warehouse for a weekend in Stamleigh. If you want to sell drugs, make a bit of coin, and spread the gospal of your movement, please reply at your earliest convenience.
+
+Love,
+Silver
 
 ## Attn: Wolf Man, Vengance Junkie, and Lizard
 ### Action Required: Need Supplies And Details On Castle Poison
