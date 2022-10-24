@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "Brinkwood Prompts 2022/10/20"
+title: "Brinkwood Prompts"
 categories: storytelling roleplaying-games brinkwood thursday=night-game
 ---
 
@@ -23,8 +23,8 @@ Silver
 ### Action Required: Need Supplies And Details On Castle Poison
 
 #### Inventory Requirements
-- 1kg Poison Ivy
-- 10kg stinging nettle
+- 1kg juniper
+- 10kg garlic
 - 10kg gold
 - 1 barrel of dried oats
 - 3 lab grade test tubes
@@ -35,7 +35,7 @@ Silver
 
 Enter castle. Bring details on alchemy performed within. Don't die.
 
-- PhD. Thurgeston
+Lina Thurgeston PhD.
 
 ## To Young Warrior Encarmine
 
