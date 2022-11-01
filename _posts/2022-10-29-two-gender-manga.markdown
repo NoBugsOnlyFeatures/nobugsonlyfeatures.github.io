@@ -46,6 +46,12 @@ Later Ren is wandering futher into the wilderness with no particular destination
 
 She can literally wish any non-living material into existence, killing any stakes there were in trying to survive in a wilderness. Just because she's special.
 
-There is the constraint that manifesting objects from nothing takes a lot of MP (yes, she does have HP, MP, stats, and a status screen she can summon), but she can effectively create anything so long as she has some understanding of how it's made.
+There is the constraint that manifesting objects from nothing takes a lot of MP (yes, she does have HP, MP, stats, and a status screen she can summon), but she can effectively create anything so long as she has some understanding of how its made.
 
-## Reviews And Conclusionsg
+From this point on, she spends time creating a net for fishing, a grill for cooking, stamina boosting potions for enough energy to make a house (I am unsure how she knows what a potion is and what goes into it; or how, in that world's physics, stamina correlates to MP). She summons a McMansion of a house into existence using raw materials, then takes a sensious bath.
+
+The next conflict to arise is that she wants to eat meat. Which is weird considering she already had access to meat by fishing. I have no explaination, but this prompts an arc where she figures out how to throw a rock really fast with magic to hunt animals. She kills some weird rabbits. Then she enters in a life or death battle with a boar, ending with her shearing off the upper half of the animal's skull (which was awesome).
+
+
+
+## Reviews And Conclusions
