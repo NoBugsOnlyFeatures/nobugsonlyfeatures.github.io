@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "What is this visual novel boing to be about?"
+title: "What is this visual novel going to be about?"
 categories: storytelling visual-novels
 ---
 
