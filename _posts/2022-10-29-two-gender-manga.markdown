@@ -6,8 +6,6 @@ categories: review manga gender
 
 # Literature Review: Last Gender - When We Are Nameless; This Is Screwed Up But I Was Reincarnated As A Girl In Another World
 
-## TL;DR
-
 Last Gender is interesting.
 This Is Screwed Up But I Was Reincarnated As A Girl In Another World is boringly bad.
 
