@@ -99,4 +99,5 @@ I knew I was buying trashy literature when I ordered Reincarnated As A Girl, but
 The connection I'd draw between Last Gender, and This Is Screwed Up But I Was Reincarnated As A Girl In Another World is they operate in the space of gender, and gender roles. These manga are intended for different audiences, expecting them to achieve the same goals isn’t productive. It is a valuable contrast to show how story exceeds presenting gender changes and discovery, while the other wastes its opportunity.
 
 Love,
+
 OnlyFeatures
