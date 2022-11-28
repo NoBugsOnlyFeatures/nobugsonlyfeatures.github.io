@@ -9,13 +9,19 @@ categories: review manga gender
 Last Gender is interesting.
 This Is Screwed Up But I Was Reincarnated As A Girl In Another World is boringly bad.
 
+### Content Wrappers
+Discussion of hardships of LGBTQ+ characters, mentions of sex.
+
+### Notice
+I am primarily a white straight male identifying individual. I do not live the life of a trans individual, but I feel my thoughts on the manga and their relationship to LGBTQ+ have some value. If you are looking for perspective from LGBTQ+ on the subject matter, you are better off looking elsewhere.
+
 ## Setting The Stage
 
-I like to buy manga. I like the style, the art, the length and size of the books, and the stories that are told within. American comic books never resonated with me in the same way manga has. Superheroes never fully resonated with me, and never found the diversity of stories I was looking for in American comic books literature.
+I like to buy manga. I like the style, the art, the length and size of the books, and the stories that are told within. American comic books never resonated with me in the same way manga has. Superheroes didn't interest me, and never found the diversity of stories I was looking for in comic books.
 
-After reaching a level of personal financial stability, buying manga (which is around $10 to $12 each), became my choice retail therapy. Especially during the first two years of the Covid-19 pandemic. It was like receiving little gifts in the mail.
+After reaching a level of personal financial stability, buying manga (which is around $10 to $12 each), became my choice retail therapy. Especially during the first two years of the Covid-19 pandemic. It was like receiving little gifts in the mail randomly to break up the bleak monotony of life.
 
-Even after the pandemic starts to move towards an endemic, I love my little books I get in the mail which contained a packet of art and story that sustained my soul.
+Even after the pandemic started to move towards an endemic, I still love my little books I get in the mail. I liked the sporadic packets of art and story. They sustained my soul.
 
 The latest of my treats to myself are two manga: Last Gender vol 1, and This Is Screwed Up But I Was Reincarnated As A Girl In Another World vol 1,2,3. I had a feeling going in that I might have a weird time with the former, and personal indulgence in garbage with the latter. I was only half right.
 
@@ -23,17 +29,17 @@ Spoilers ahead.
 
 ## Story of Last Gender
 
-In the first volume of Last Gender, there are five vignettes involving patrons bar called a BAR California. The bar is a place where identity and personal status don't matter, and you're able to engage in "intimate play" (i.e., sex) with consenting individuals. Though it isn't only a place for sex, some patrons come to the bar simply to as be the gender or sexuality that they feel is natural to them.
+In the first volume of Last Gender, there are five chapters involving patrons bar called a BAR California. The bar is a place where identity and personal status don't matter, and you're able to engage in "intimate play" (i.e., sex) with consenting individuals. Though it isn't only a place for sex, some patrons come to the bar simply to as be the gender or sexuality that they feel is natural to them.
 
-The first story is set to establish the setting and explain the breadth and depth of gender and sexuality. Minami, a woman who's been cheated on by her husband, comes to the bar to try to understand where he's been sneaking off to. There she meets a trans woman, Ran, who seduces her into having sex. In their exchange the viewer learns that Minami has always felt boxed in by the expectations of society, and Ran is jealous of those who are accepted by society for who they are and who they love. Minami leaves the bar feeling liberated, both of her empty marriage but also by the expectations pushed upon her. It seems Ran is left without a happy end, but in the next chapter, she get's her due.
+The first story is set to establish the setting and explain the breadth and depth of gender and sexuality. Minami, a woman who's been cheated on by her husband since before they were married, comes to the bar to try to understand where he's been sneaking off to. There she meets a trans woman, Ran, who seduces her. In their intimate exchange the reader learns that Minami has always felt boxed in by the expectations of society and Ran expresses her jealousy of those who fit in with cultural expectations. Ran drops a fact about Facebook allowing people to pick from among 58 genders and expresses her frustration with being treated less for being a minority. Despite that, being the BAR, they are allowed to be themselves for a little bit. Minami leaves the bar feeling liberated, both free of her empty marriage but also by the expectations pushed upon her. It seems Ran is left without a happy end, but in the next chapter, she gets her due.
 
-Ran's story details the hardship of not only being Bisexual but transitioning to female. Her inner monologue covers the social issues of transitioning such as the expectations of others, but also the medical and legal challenges of getting gender affirming care.  During her internal frustrations, a cis pansexual man Mao, is genuinely pursing Ran for who she is. She consistently brushes Mao away, thinking he's another person trying to impose their own ideas on her. In a moment of clarity for Ran, Mao can confess that he wants to know her as who she is. It's then it clicks in Ran's mind that this man might be the love she was looking for. Ran wants to jump his bones as a way of getting to know each other, but Mao adorably says he is too shy when other people are watching (in BAR California).
+Ran's story details the hardship of not only being Bisexual but transitioned to female. Her inner monologue covers the social issues of transitioning such social expectations, also the medical and legal challenges of getting gender affirming care.  During her internal frustrations, a cis pansexual man named Mao, is genuinely pursing Ran. She consistently brushes Mao away, thinking he's another person trying to impose their own ideas on her as she's caught in her inner thoughts. In a moment of clarity, Mao confessed that he wanted to know her as who she is. It's then it clicks this maybe this man is the love she was looking for. Ran wants to jump his bones as a way of getting to know each other, but Mao adorably says he is too shy when other people are watching (in BAR California).
 
 The next chapter we get Mao's history and a lead into Marie (a gender fluid person). Mao's family life is rough, his parents believe there is something wrong with him for being pansexual. He effectively disowns them, and they continuously try to take him to conversion therapy. Marie tells him that keeping somethings to yourself from your family is ok. Mao resolves to make his past-self proud, even if his parents don't accept him.
 
-This leads to Marie, someone who identifies mostly as male, but partly as female. They present themselves as a man outside of BAR California and heavily female within with cute dresses, wigs, and make-up. However, they hide their female identity from their family, fearing the wife and daughter they love will come to hate them should they reveal their bigender nature. It's when Amiru, an aromantic woman that frequents the bar for sex, finds out Marie's double life. She comments how wonderful for it is for Marie to have this love in their life, that to not their lying ruin what they have. After getting new insight into what Marie has, they rush home and share their secret to their wife. Though their wife is shocked, they want to learn.
+This leads to Marie (my personal favorite story), someone who identifies mostly as male, but partly as female. They present themselves as a man outside of BAR California and heavily female within with cute dresses, wigs, and make-up. However, they hide their female identity from their family, fearing the wife and daughter they love will come to hate them should they reveal their bigender nature. It's when Amiru, an aromantic woman that frequents the bar for sex, finds out about Marie's double life. She comments how wonderful for it is for Marie to have this love in their life, to not let their deception ruin what they have. After getting new insight into what Marie has, they rush home and share their secret to their wife. Though their wife is shocked, but she wants to understand.
 
-Amiru's story is mostly a monologue on living a life where she doesn't understand love and is shunned for not understanding. People accuse her of being a slut or broken in some way. After sex with a mysterious blindfolded man, he drops some advice to her. He says she should be the protagonist of her own life. From that she realizes that her life may not be a romantic story, but it is her story and the rest are the cast.
+Amiru's story is mostly a monologue on living a life where she doesn't understand love and is shunned for not understanding. People accuse her of being a slut or broken in some way. After sex with a mysterious blindfolded man, he drops some advice for her. He says she should be the protagonist of her own life. From that she realizes that her life may not be a romantic story, but it is her story and that's good enough. Amiru 
 
 This mysterious man, Yukihiro is set up to be the protagonist of the next chapter, but that is where the volume ends.
 
@@ -41,7 +47,7 @@ This mysterious man, Yukihiro is set up to be the protagonist of the next chapte
 
 Everything goes right for Ren.
 
-Ren was a scientist of our world (of some unknown discipline), reborn in a world of fantasy and magic. He (or her, they don't really their gender in any meaningful way) awakens in the wreckage of a caravan amidst a storm. She (I'll use she/her pronouns for them going forward because that's how they portray themselves in the world) uses "scientific knowledge" (i.e. basic survival training and grade school science) to build a shelter and start a fire using magic to dry wood and leaves and then fire to ignite it. It's there she falls asleep until the next day.
+Ren was a scientist of our world (of some unknown discipline), reborn in a world of fantasy and magic. He (or her, they don't really their gender in any meaningful way) awakens in the wreckage of a caravan amidst a storm. She (I'll use she/her pronouns for them going forward because that's how they portray themselves in the world) uses "scientific knowledge" (i.e., basic survival training and grade school science) to build a shelter and start a fire using magic to dry wood and leaves and then fire to ignite it. It's there she falls asleep until the next day.
 
 She has a dream of being an overly enthusiastic sex slave to a wealthy man. Upon waking up she recalled in this world's life; she was travelling to meet that man? This is where the story is unclear in the details, though it's heavily implied that she was to become a concubine for this man in exchange for the continued existence of the orphanage. Upon Ren having this revelation bails on her meeting with the wealthy man and the orphanage.
 
@@ -61,7 +67,7 @@ Ren then discovers how to pleasure herself with her newly acquired female parts.
 
 ## Reviews
 
-Last Gender is a well-structured flowing narrative about not being a cis gendered straight person. I like that each chapter has it's struggling protagonist, an outside perspective secondary character, and long standing character that enables the protagonist that is enabler to the pair.
+Last Gender is a well-structured flowing narrative about not being a cis gendered straight person. I like that each chapter has its struggling protagonist, an outside perspective secondary character, and long-standing character that enables the protagonist that is enabler to the pair.
 
 All struggles in Last Gender are internal or social. The main character comes to BAR California to be able to express their gender and/or sexual preference, however, are haunted by the pressures of society against their desired state of being. The supporting character provide the main character perspective on their challenge, giving them a breakthrough to find comfort in who they are, or to be vulnerable to those who truly care about them.
 
