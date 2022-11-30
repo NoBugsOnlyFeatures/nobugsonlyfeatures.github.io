@@ -9,7 +9,7 @@ categories: review manga gender
 Last Gender is interesting.
 This Is Screwed Up But I Was Reincarnated As A Girl In Another World is boringly bad.
 
-### Content Wrappers
+### Content Warnings
 Discussion of hardships of LGBTQ+ characters, mentions of sex.
 
 ### Notice
