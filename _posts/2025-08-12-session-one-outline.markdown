@@ -1,7 +1,7 @@
 ---
 layout: default
 title: "Blades in the Dark: Vtubers Outline Session 1"
-categories: storytelling roleplaying-games character-sheet streaming
+categories: storytelling roleplaying-games streaming
 ---
 
 # Blades in the Dark: Vtubers Outline
